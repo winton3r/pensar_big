@@ -1,0 +1,2 @@
+# pensar_big
+Aprendizaje 
